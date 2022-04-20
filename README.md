@@ -4,4 +4,5 @@ The constant climate change could be devastating to vulnerable coastal forests i
 # STUDY AREA
 ![study area](https://user-images.githubusercontent.com/56217090/164122236-c8c8f2bf-a2a9-4f67-960d-3bfcabc4fb04.jpg)
 
+![Coastal Area During 2011 to 2016](https://user-images.githubusercontent.com/56217090/164122663-78b0bcef-0b90-4164-b002-2a5ec6252ded.jpg)
 
